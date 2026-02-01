@@ -1,4 +1,5 @@
 HERES MY RENTRY!! https://rentry.co/v7gyw9rt
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/d26822fe-ac1b-469d-a2f1-61fb27234f9e" />
 
 ![Alt Tag](https://i.pinimg.com/736x/9a/22/b2/9a22b20fadb143123219c8a9cc93186d.jpg)
 <img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/2c18df18-5e1b-429e-9485-7b33c03ab7cd" />
